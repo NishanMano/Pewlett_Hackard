@@ -13,10 +13,5 @@ Upper-level management required an analysis done on the number of employees who 
 
 ## Summary
 
-I would suggest starting the mentorship program immediately and find ways to make it so that one person can mentor numerous people at once. 
-I would even recommend creating mentorship program videos which they can use even more efficiently as well as improvise as the years go on. 
-This will provide at least some valuable insight into their experience in their roles with the younger generation.
-They should look into hiring as quickly as possible due to the large disparity in their senior level positions. 
-We can always do further research on a yearly basis to find out how much people are retiring for the very next year. 
-This would provide insight on how quickly they would need to hire more staff. 
+I would suggest starting the mentorship program immediately and finding ways to make it so that one person can mentor numerous people at once. I would even recommend creating mentorship program videos which they can use even more efficiently as well as improvise as the years go on. This will provide at least some valuable insight into their experience in their roles with the younger generation. They should investigate hiring as quickly as possible due to the large disparity in their senior-level positions. We can always do further research on a yearly basis to find out how many people are retiring for the very next year. This would provide insight on how quickly they would need to hire more staff.
 
